@@ -1,3 +1,4 @@
-输入我的邀请码 ***YJN875F*** 来获得三个月的蓝灯专业版！[立即下载](https://github.com/getlantern/forum)
-### 专业版蓝灯(Lantern)邀请码，
-### 最新Lantern邀请码 | 最新蓝灯邀请码 | Latest Lantern Invitation code
+### 输入我的蓝灯（Lantern）邀请码 ***YJN875F*** 来获得三个月的蓝灯专业版！[立即下载](https://github.com/getlantern/forum)
+### Enter my Lantern Invitation Code *** YJN875F *** to get a three-month Blue Light Pro!
+### បញ្ចូលកូដលិខិតអញ្ជើញឡានរបស់ខ្ញុំ *** YJN875F *** ដើម្បីទទួលបាន Blue Light Pro រយៈពេល 3 ខែ!
+### Введите мой пригласительный код фонаря *** YJN875F ***, чтобы получить трехмесячный Blue Light Pro!
